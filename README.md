@@ -7,3 +7,6 @@ Jelajahi repositori saya untuk melihat proyek-proyek terbaru yang saya kerjakan,
 Jika Anda memiliki pertanyaan, ide, atau ingin berkolaborasi, jangan ragu untuk menghubungi saya.
 
 Selamat belajar!
+
+Nasir Syar'an
+email: innovatingwork@gmail.com
